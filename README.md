@@ -65,8 +65,10 @@ Visit the platform to explore more insights and updates:
 Learn more about our mission:  
 👉 https://occupationtalk.com/about-us/
 
-other Links
-https://site-fmar1pk2e.godaddysites.com/
+other Links  
+
+https://site-fmar1pk2e.godaddysites.com/  
+https://occupationtalk5.wordpress.com/  
 
 ---
 
